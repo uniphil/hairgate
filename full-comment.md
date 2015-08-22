@@ -36,23 +36,20 @@ And which one wouldn’t know what a personal grooming assistant was if he fell 
 
 Yes! You got it right! Smart you!
 
-Next: Why should the taxpayer foot the bill for the micromanagement of Harper’s hair? Is his hair in the public interest? Is it crucial infrastructure? A matter of national security? Or is the pampering just a matter of narcissistic vanity?
+Next: Why should the taxpayer foot the bill, even in part, for the micromanagement of Harper’s hair? Is his hair in the public interest? Is it crucial infrastructure? A matter of national security? Or is the pampering just a matter of narcissistic vanity?
 
 Maybe it wasn’t altogether wise for the Conservatives to bring up hair: it focused the hair spotlight.
 Start with one candidate’s hair and we can’t help thinking about the topside garnishments of the others – not only what they might signify, but also what they might be costing us.
 
 Will the Conservatives now lay off on the personal-appearance attack stuff? Doubtful: they’ve got a thing for it.
-Jean Crétien’s paralyzed face, laugh a minute! Trudeau’s hair, woo-woo! Who’s next? “Nice tits, Elizabeth?”
+Jean Chrétien’s paralyzed face, laugh a minute! Trudeau’s hair, woo-woo! Who’s next? “Nice tits, Elizabeth?”
 
 Wait! I can see it coming! Mulcair’s beard! The Conservatives will have trouble with a straight-out character attack on Mulcair because they regarded the guy so highly they tried to hire him themselves, so they’ll have to fall back on the beard: “Thomas Mulcair.
 What’s he hiding behind that beard?”
 
-Don’t go there, Cons! Because then we’ll all start thinking about “hiding.” Why is Harper still coyly hiding the two-million-dollar donors to his party leadership race? Don’t we have a right to know who put him in there? Who’s he working for, them or us?
+Don’t go there, Cons! Because then we’ll all start thinking about “hiding.” Why is he hiding his campaign events from the public? Is he running for Prime Minister of the whole population –– those whose taxes pay, in whole or in part, for him and his hair –– and if so, why isn’t he talking to all of us? Aren’t you agog to know if you’re on Harper’s hidden “enemies list”?
 
-Why is he hiding his campaign events from the public? Is he running for Prime Minister of the whole population – those whose taxes pay, in whole or in part, for him and his hair – and if so, why isn’t he talking to all of us? In his earlier quoted comment, “I don’t care what they say,” who are they? Aren’t you agog to know if you’re on Harper’s hidden “enemies list”?
-
-Why is he hiding what he knew about the Duffy cover-up, and when he knew it? He’s given four mutually exclusive answers so far.
-Is there a hidden real answer?
+Why is he hiding what he knew about the Duffy cover-up, and when he knew it?
 
 And if he’s hiding all this, what else is he hiding?
 
